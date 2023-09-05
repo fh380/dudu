@@ -1,4 +1,6 @@
 # dudu
 Meu nome é Eduardo
-![](https://tenor.com/pt-BR/view/christian-bale-american-psycho-walk-jam-gif-16732505)
+![](https://media.tenor.com/OUoOib2VLT0AAAAC/laughing-zoom.gif)
+
+
 
